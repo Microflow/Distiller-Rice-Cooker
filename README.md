@@ -3,7 +3,7 @@
 ##### *Yup, just like the guy's are sayin, read, re-read, then re-read again. Did I tell you about re-reading everything twice...?*
 ##### *Really is a great hobby  just do what were sayin and you'll cut your first tooth safely...*
 
-[Distillation Basics. Starts ar 3:00](https://youtu.be/-AhtVcnktOM)
+[Distillation Basics. Starts ar 3:00. Very simple method. Uses Inverted glass lid on pot](https://youtu.be/-AhtVcnktOM)
 
 [Homemade Distiller](https://www.youtube.com/watch?v=FJAEB0-lSRM)
 
