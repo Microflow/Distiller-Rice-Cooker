@@ -38,3 +38,8 @@ I tested my still by distilling a gallon of "rice wine for cooking" which has sa
 
 The whole system works great!
 
+## Ethanol
+
+https://www.instructables.com/How-to-Make-Bio-ethanol-From-Regular-Sugar/
+
+https://www.wikihow.com/Make-Ethanol-Fuel
