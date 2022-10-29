@@ -3,9 +3,11 @@
 ##### *Yup, just like the guy's are sayin, read, re-read, then re-read again. Did I tell you about re-reading everything twice...?*
 ##### *Really is a great hobby  just do what were sayin and you'll cut your first tooth safely...*
 
+[Distillation Basics. Starts ar 3:00](https://youtu.be/-AhtVcnktOM)
+
 [Homemade Distiller](https://www.youtube.com/watch?v=FJAEB0-lSRM)
 
-Use copper instead fo plastic, but shows basic principles.
+Use copper instead of plastic, but shows basic principles.
 
 ## Parts List
 
