@@ -6,6 +6,7 @@
 - Drill a hole in the rice cooker lid?
 - Condenser
 
+## [Home Distiller Forum](https://homedistiller.org/forum/viewtopic.php?t=16818)
 
 ## [https://www.reddit.com/r/firewater/comments/1j0e00/rice_cooker_still/](https://www.reddit.com/r/firewater/comments/1j0e00/rice_cooker_still/)
 
